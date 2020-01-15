@@ -1,0 +1,1 @@
+I am _very good_ at **problem solving** and figuring things out. I have quite a bit of _**knowledge**_ about **Java** and have made a couple programs in it beyond basic ones. One of them being a really basic but cool tower defense program! :tada:
