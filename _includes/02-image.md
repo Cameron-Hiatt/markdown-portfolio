@@ -1,1 +1,1 @@
-![Funny CyberBus Meme](https://i2.wp.com/wokennews.com/wp-content/uploads/2019/11/img_4761.jpg?resize=736%2C673&ssl=1)
+![Picture of Cameron Hiatt](https://qph.fs.quoracdn.net/main-raw-779103993-urokszqizbatakdwsdzbsuivxtamfysl.jpeg)
